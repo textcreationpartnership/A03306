@@ -35,9 +35,25 @@ This keyboarded and encoded edition of the
 ##Content Summary##
 
 #####Front#####
-The spirituall fishing. A sermon preached in Cambridge by that reuerend and iudicious diuine, Mr Sam
+
+1. ¶To the VVorthy,
+Religious, and Vertuous Lady, the
+Lady MARGARET YELVERTON,
+Wife to the much honoured, Sir
+HENRY YELVERTON Knight,
+the Kings Atturney Generall,
+continuance of all happineſſe.
+
+1. To the Chriſtian Reader▪
+
 #####Body#####
-The spirituall fishing. A sermon preached in Cambridge by that reuerend and iudicious diuine, Mr Sam
+
+1. THE
+Spirituall Fishing.
+Text,
+LVKE 5. ver. 10. The laſt words of that verſe,
+Henceforth thou ſhalt catch men.
+
 **Types of content**
 
   * Oh, Mr. Jourdain, there is **prose** in there!
